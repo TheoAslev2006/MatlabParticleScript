@@ -1,1 +1,1 @@
-this is a wierd repository lol 
+this is a weird repository lol 
